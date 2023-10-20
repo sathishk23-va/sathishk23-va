@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sathishk23-va
 - 👀 I’m interested in being avid
 - 🌱 I’m currently learning a lot, everyday
-- 💞️ I’m looking to collaborate on anything and everything for VA projects
+- 💞️ I’m looking to collaborate on anything and everything for projects
 - 📫 How to reach me , just a call away
 
 <!---
